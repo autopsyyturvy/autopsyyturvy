@@ -1,6 +1,6 @@
 <p><img src="https://file.garden/amw7ThLC906n_zea/DA724080-A427-4E89-9FC2-A26537B9D734.jpeg?v=1786690748848" class="fr-fic fr-dib" width="400" height="356.609" alt="art by @77_chuu_774 on twt"></p>
 
-<h2 style="text-align: center;">i like many ships online ! talk to me about them...!</h2>
+<h2 style="text-align: center;">i like many things online ! talk to me about them...!</h2>
 
 <h4 style="text-align: center;">i rarely hide people, but i mute often... sorry,,</h4>
 
